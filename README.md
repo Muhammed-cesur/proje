@@ -1,0 +1,1 @@
+# PATİKA.DEV ÖDEV
